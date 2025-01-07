@@ -1,6 +1,6 @@
 <p align="center"
 
-![.](https://64.media.tumblr.com/5be87049dbb6b99326067bc04022473d/8742a5525a904cb2-32/s2048x3072/40040085fe609943f49d10751f61953d7a1e1ec9.pnj)
+![.](https://64.media.tumblr.com/e7f68373622edae52fe1462f06431c4b/b1701af0a1435f1a-85/s400x600/8e09b71261011042f34068116cc6d658aa7efedf.pnj)
 
 <p align="center"
   
@@ -8,7 +8,7 @@ hihello ! no longer use patreon so everything will be moved here, itll b a yap s
 <br>
 *was @robotpilled*
 <br>
-PLSPLSPLSPLS PLEASE THINK OF ME AS THE BUNNY PERSON PLEAG,, 
+a 
 
 <p align="center"
   
