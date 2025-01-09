@@ -16,7 +16,7 @@ she/they/he
 
 <p align="center"
 
-**basic info !**
+**basic info !** ![.](https://64.media.tumblr.com/d34d20f0b13056f6beec10117e733464/b55b2416bafcc208-02/s75x75_c1/290ea0b560b18d678ea99feb7e0c1788234e26f9.gif)
 <br>
 MINOR!!!! I AM A CHILD!!!
 <br>
@@ -57,41 +57,19 @@ digital horror
 
 <p align="center"
   
-![.](https://64.media.tumblr.com/79c3564e49f84aaf8d968a5d3d0eec61/45bc1ad6625bafea-94/s1280x1920/49e8752bda9b8af7a9596e0795aad1bdde3653a3.gifv)
+![.](https://files.catbox.moe/ksa6xj.gif)
 
 <p align="center"
 
-**QUICK DNI I DONT LIKE DOING THESE**
+**DNI**
 <br>
-countryhumans fandom dniuid
+basic dni criteria
 <br>
-dsmp, 4lung+nekozuna, coffin of andy n leyley fans or whatever the fuck
-<br>
-sprunki. i only like jevin cus hes BLUE
-<br>
-mandela catalogue dniuf
-<br>
-basic dni yk the drill
-<br>
-proship/profic darkship etc
-<br>
-youtuber irls??? cant believe i have to put this
-<br>
-valentino dniuvcf
-<br>
-subkit dniucf
-<br>
-felanie dni, folly ponies iwec actually
-<br>
--15 , 21+
-<br>
-dniuf/cf any dandys world ships when im astro/cosmo 
-<br>
-roleplayrs,, sorry
+uhm idk i block if i don't like!
 
 <p align="center"
   
-![.](https://64.media.tumblr.com/942e5a452e0cc6a405c5ddd685b09859/1308d9e078ff6f3d-f9/s640x960/333326fb4df1bef0b37f479d9462ebf0bd3b3f68.gifv)
+![.](https://64.media.tumblr.com/942e5a452e0cc6a405c5ddd685b09859/1308d9e078ff6f3d-f9/s640x960/333326fb4df1bef0b37f479d9462ebf0bd3b3f68.gif)
 
 <p align="center"
 
