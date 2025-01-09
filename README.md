@@ -31,7 +31,7 @@ i'm usually online almost all the time! i'm usually inactive until 2:20 PM cuz o
 
 <p align="center"
 
-![.]()
+![.](https://64.media.tumblr.com/97aa330a45329fdf0e8e9411a22e4a00/6bf1fcbbe17c2c92-01/s540x810/493bc48fec440d7610e7ecc3386d105c8502e7df.pnj)
 
 <p align="center"
 
