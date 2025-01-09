@@ -4,11 +4,11 @@
 
 <p align="center"
   
-hihello ! no longer use patreon so everything will be moved here, itll b a yap sesh so if u dont rlly care pls go 2 my strawpage instead for shortened info !! ty
+HIHELLO!!!!
 <br>
-*was @robotpilled*
+my name is shadow/koda
 <br>
-a 
+she/they/he
 
 <p align="center"
   
@@ -18,29 +18,42 @@ a
 
 **basic info !**
 <br>
-7teen, bun/buns - they/he 4 friends
+MINOR!!!! I AM A CHILD!!!
 <br>
-^ check prns page 4 mor info 
+i have autism and adhd 
 <br>
-bpdtistic - when i say iwc *i mean it*
+i'm very slow and stupid so tone indicators would be nice when talking to me, but are absolutely not required at all!!
 <br>
-to add onto that depending on the char im attached to i may be weirdly blunt or uninterested in talking.. sorry :(
+i get uncomfy when people talk bad about my hyperfixes/spinterests/things i like. you are absolutely *not* required to get into the stuff i like to get to be friends with me, i just prefer you don't talk bad about my interests directly to me
 <br>
-yes i am a hh/hb fan, i dont support viv ALSO #1 STOLAS HATER
+i'm usually online almost all the time! i'm usually inactive until 2:20 PM cuz of school 💔
 <br>
-if u couldnt tell i luv christmas + bunnies,,
+
+<p align="center"
+
+![.]()
+
+<p align="center"
+
+  **SPECIAL INTERESTS/HYPERFIXATIONS!!!** ![.](https://files.catbox.moe/7xyiid.gif)
 <br>
-irl buny boy, if u see me online js knoe this who ur talking 2 !! -> ![.](https://64.media.tumblr.com/54b510d0279221e4ca2e0fece5f372b5/cf492c2ab0c22fbd-fb/s75x75_c1/e39f604e787e657242f9ca8e8af53925ecd6d91b.gifv)
+the walten files (obviously!)
 <br>
-selfshipper !! nonsharing sorry,, smg43 + fandom iwc?
+the mandela catalogue
 <br>
-adam + astro + v1 + many others irl
+...i love your cruddy...
 <br>
-im afk offtab almost all the time, pls whisp me instead i also hav a touch comf so ff2cud/cuddpile anytime even if im sitting w sum1 C:
+needy streamer overload
 <br>
-I LUV STAMPS !!! I LAUV STAMPS CAN U TELL. C
+i have no mouth and i must scream
 <br>
-i dont consider myself to be a dw fan/in the fandom? im js an irl but ill probably leave u alone if u have fndmdni in ur name :") idont wanna make u uncomf
+love angel syndrome
+<br>
+lacey's flash games
+<br>
+analogue horror
+<br>
+digital horror
 
 <p align="center"
   
