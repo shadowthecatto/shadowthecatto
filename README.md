@@ -35,11 +35,13 @@ i'm usually online almost all the time! i'm usually inactive until 2:20 PM cuz o
 
 <p align="center"
 
-  **SPECIAL INTERESTS/HYPERFIXATIONS!!!** ![.](https://files.catbox.moe/7xyiid.gif)
+  **SPECIAL INTERESTS/HYPERFIXATIONS/FANDOMS I'M IN!!!** ![.](https://files.catbox.moe/7xyiid.gif)
 <br>
 the walten files (obviously!)
 <br>
 the mandela catalogue
+<br>
+wicked
 <br>
 ...i love your cruddy...
 <br>
