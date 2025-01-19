@@ -28,6 +28,7 @@ i get uncomfy when people talk bad about my hyperfixes/spinterests/things i like
 <br>
 i'm usually online almost all the time! i'm usually inactive until 2:20 PM cuz of school 💔
 <br>
+i play ponytown! my user is shadowthecatto amd i'm usually in my elphaba pony! in the uhm place near the restaraunt place or whatever lol
 
 <p align="center"
 
