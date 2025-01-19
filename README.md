@@ -41,7 +41,6 @@ the walten files (obviously!)
 <br>
 the mandela catalogue
 <br>
-<br>
 lacey's flash games
 <br>
 analogue horror
@@ -75,6 +74,11 @@ love angel syndrome
 i have no mouth and i must scream
 <br>
 deltarune
+<br>
+danganronpa
+<br>
+invader zim
+
 <p align="center"
   
 ![.](https://files.catbox.moe/ksa6xj.gif)
