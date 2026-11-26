@@ -1,4 +1,4 @@
-:<p align="center"
+<p align="center"
 
 ![.](https://64.media.tumblr.com/714c22146f7c9121885a151e5c077b5e/20f1f21c678cd316-f9/s540x810/ad42d5b202a8f14477eae014fc349c3e08d91fc2.gif)
 
