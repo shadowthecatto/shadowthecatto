@@ -6,9 +6,9 @@
   
 HIHELLO!!!!
 <br>
-my name is shadow/koda
+i usually go by shadow/koda, but i go by a lot of names! (catra, thomas jefferson/tj, and diana are just a few!)
 <br>
-she/they/he
+any/all pronouns
 
 <p align="center"
   
@@ -18,19 +18,18 @@ she/they/he
 
 **basic info !** ![.](https://64.media.tumblr.com/d34d20f0b13056f6beec10117e733464/b55b2416bafcc208-02/s75x75_c1/290ea0b560b18d678ea99feb7e0c1788234e26f9.gif)
 <br>
-MINOR!!!! I AM A CHILD!!!
+minor!!
 <br>
 i have autism and adhd 
 <br>
-i'm very slow and stupid so tone indicators would be nice when talking to me, but are absolutely not required at all!!
+
 <br>
-i get uncomfy when people talk bad about my hyperfixes/spinterests/things i like. you are absolutely *not* required to get into the stuff i like to get to be friends with me, i just prefer you don't talk bad about my interests directly to me
+i get uncomfortable when people talk bad about my hyperfixes/spinterests/things i like. you are absolutely *not* required to get into the stuff i like to get to be friends with me, i just prefer you don't talk bad about my interests directly to me
 <br>
-i'm usually online almost all the time! i'm usually inactive until 2:20 PM cuz of school 💔
+i'm usually online almost all the time!
 <br>
-i play ponytown! my user is shadowthecatto amd i'm usually in my elphaba pony! in the uhm place near the restaraunt place or whatever lol
+i play ponytown! my user is shadowthecatto
 <br>
-i rarely agere and petre! this is me if you even care -> ![.](https://64.media.tumblr.com/5a3ac572354fdab82362b68dc1ad178f/6556fde6f69ce461-c7/s250x400/5ec71cf0751ff669382b9c5f8e4c1f8e1cb965c6.pnj)
 
 <p align="center"
 
@@ -44,7 +43,7 @@ the walten files (obviously!)
 <br>
 the mandela catalogue
 <br>
-lacey's flash games
+she-ra and the princesses of power
 <br>
 analogue horror
 <br>
@@ -60,9 +59,11 @@ digital horror
 <br>
 WICKED!!!,!
 <br>
-needy streamer overload
+absolute wonder woman (wonder woman in general actually
 <br>
-...i love your cruddy...
+metroid
+<br>
+pokemon
 
 <p align="center"
 
@@ -72,19 +73,13 @@ needy streamer overload
 
 *OTHER FANDOMS I'M IN!* ![.](https://64.media.tumblr.com/2cfdfb24429c52cd590978b0ed349ad5/dbf0efc59735e90f-06/s75x75_c1/525ee117920f8b030715cf3f3411b648ea0acf8a.gif)
 <br>
-love angel syndrome
-<br>
 i have no mouth and i must scream
 <br>
 deltarune
 <br>
 danganronpa
 <br>
-invader zim
-<br>
-class of 09
-<br>
-menhera-chan
+undertale
 <br>
 fnaf
 
